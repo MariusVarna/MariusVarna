@@ -1,4 +1,4 @@
-## Marius Varna
+## Hey, I am Marius 👋
 
 Software Systems student · Full-stack intern @ Eneba  
 
